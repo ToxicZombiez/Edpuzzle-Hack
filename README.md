@@ -1,2 +1,2 @@
-PS not mine 
-To people that think i made this i didn't
+PS not mine https://github.com/playstation452/All-Hacks/blob/main/Edpuzzle%20hacks/Hacks.txt
+
